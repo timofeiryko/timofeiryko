@@ -10,6 +10,7 @@ My nickname is `timofeiryko` on every platform except instagram (in inst it is `
 - [Facebook](https://www.facebook.com/timofeiryko/)
 - [Telegram](https://t.me/timofeiryko)
 - [Instagram](https://www.instagram.com/rykotimofei/)
+- [Twitter](https://twitter.com/timofeiryko)
 - [VK](https://vk.com/timofeiryko)
 - [Contact me by email](https://formkeep.com/p/9768808d5254754c9aeec5712c3e92c2)
 
